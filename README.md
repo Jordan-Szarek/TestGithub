@@ -1,4 +1,3 @@
-# TestGithub
-====
-
-TestGithub is a repository for showing the bare minimums of githbu and how to maneuver, function, etc.
+VimCrypt~01!s¼bó¹ºa°Kêk‘ ÏL…jåÏ½¼Ø%siÃëù¶H–eÙÔ#ÉÃ}”?HíÙš0o¹êMqâÓ‹Õ†nÉÆ#Á¾cõù ‰¦™Ä©m­Z™uë2˜ísfÖ<Éå*¦KŒnù4/cÿŒg²é)Môø V½ïÂå"öÁˆ³±F¢£Æşw8É¯o¨õò’“ğD×2­Ó¿vÙÚPz-ãUó>[¼ÊLl…
+,E,¯Ÿ~LäixŠ•Â7˜Ñ/:J\¬ó¢"y’
+Šs®¾K
